@@ -1,0 +1,6 @@
+# Gedanke
+>
+
+### Bedeutung
+
+#gedanke
